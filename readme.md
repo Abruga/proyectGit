@@ -1,0 +1,5 @@
+Lorem ipsum dolor sit amet, consectetur adipiscing elit. Ex quo, id quod omnes expetunt, beate vivendi ratio inveniri et
+ comparari potest. pitid ergo attinet gloriose loqui, nisi constanter loquare?Legimus tamen Diogenem, Antipatrum, Mnesarchum, Panaetium, multos alios in primisque familiarem nostrum Posidonium. Duo Reges: constructio interrete. Vulgo enim dicitur: Iucundi acti 
+ labores, nec male Euripidesconcludam, si potero, Latine; Iam in altera philosophiae parte. Theophrastus mediocriterne delectat, 
+ cum tractat locos ab Aristotele ante tractatos? Aut unde est hoc contritum vetustate proverbium: quicum in tenebris? Est autem 
+ etiam actio quaedam corporis, quae motus et status naturae congruentis tenet; In schola desinis. Sed fortuna fortis; Atque haec coniunctio confusioque virtutum tamen a philosophi
